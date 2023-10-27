@@ -13,7 +13,7 @@ jkjk_jfff,56tg
 aishi,rte44
 panguan,56tg
 duoliwunai,rt43
-shaoyihshs
+shaoyihshs,tr4
 fannaochhu_878
 shif_098
 tiantian,tyrf43
