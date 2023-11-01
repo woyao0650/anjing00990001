@@ -10,7 +10,7 @@ tiantian.786,ghr54
 senmm+0098,yu55
 meishenm,45rg
 jkjk_jfff,56tg
-aishi,rte44
+aishi,rte44,ty54
 panguan,56tg,rtg34
 duoliwunai,rt43
 shaoyihshs,tr4
