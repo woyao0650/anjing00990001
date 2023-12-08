@@ -15,7 +15,7 @@ panguan,56tg,rtg34
 duoliwunai,rt43
 shaoyihshs,tr4
 fannaochhu_878
-shif_098
+shif_098,yu767
 tiantian,tyrf43
 zhibo,67thg
 yuenna,5643,56gr
