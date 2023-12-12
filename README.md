@@ -13,7 +13,7 @@ jkjk_jfff,56tg,ty64
 aishi,rte44,ty54.jkiyu8878
 panguan,56tg,rtg34
 duoliwunai,rt43
-shaoyihshs,tr4
+shaoyihshs,tr4,yuy7675
 fannaochhu_878
 shif_098,yu767
 tiantian,tyrf43
