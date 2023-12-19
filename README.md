@@ -12,7 +12,7 @@ meishenm,45rg,yuh54,ghy45
 jkjk_jfff,56tg,ty64
 aishi,rte44,ty54.jkiyu8878
 panguan,56tg,rtg34
-duoliwunai,rt43
+duoliwunai,rt43,tyrt45
 shaoyihshs,tr4,yuy7675
 fannaochhu_878
 shif_098,yu767
