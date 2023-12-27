@@ -14,7 +14,7 @@ aishi,rte44,ty54.jkiyu8878
 panguan,56tg,rtg34
 duoliwunai,rt43,tyrt45
 shaoyihshs,tr4,yuy7675
-fannaochhu_878
+fannaochhu_878.,yu6565
 shif_098,yu767,ghty566
 tiantian,tyrf43
 zhibo,67thg
